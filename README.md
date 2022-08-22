@@ -1,1 +1,1 @@
-# PENSAMENTO-COMPUTACIONAL-1-NEM-
+# PENSAMENTO-COMPUTACIONAL-1-NEM-Eu sou o Matheus estou aqui para aprender tecnologias novas igual eu aprendi a criar jogo no site scrach e pra mim foi uma grande experiencia pois eu nunca tinha feito aquilo 
